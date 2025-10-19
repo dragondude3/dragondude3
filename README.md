@@ -1,7 +1,7 @@
 ![tumblr_e108184ee0aa17d6dec7007f5001934a_65a3bd67_1280](https://github.com/user-attachments/assets/451dce56-6531-4131-9cb5-dc862fdb0ae0)
 <p align="center"> <a href="https://library.atabook.org">⏔ ata </a>
   <img src="https://i.imgur.com/87R1FBq.gif">
-<p align="center"> <a href="https://rentry.co/dragonofspades">⏔ rentry </a>
+<p align="center"> <a href="https://rentry.co/dragonnace">⏔ rentry </a>
 <img src="https://i.imgur.com/yEJ1FeA.gif">
 <div align="center">
   <p align="center">
